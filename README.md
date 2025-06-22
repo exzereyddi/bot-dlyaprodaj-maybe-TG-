@@ -7,7 +7,6 @@ bot-dlyaprodaj-maybe
 
 ![image](https://github.com/user-attachments/assets/07f61247-7b69-498a-a572-9257fe653f86)
 
-![image](https://github.com/user-attachments/assets/f49073bc-f242-4ecf-b051-111bc229eff6)
-
 ![image](https://github.com/user-attachments/assets/b158cb51-54e9-4538-838f-3da9202a446f)
 
+![image](https://github.com/user-attachments/assets/f49073bc-f242-4ecf-b051-111bc229eff6)
